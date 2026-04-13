@@ -48,7 +48,7 @@ I am a Machine Learning and Cloud enthusiast focused on building intelligent, sc
 ## 📫 Connect With Me
 
 - 💼 LinkedIn: https://www.linkedin.com/in/dhanushiya-prakash-4b3858326/
-- 📧 Email: dhanushiyaprakash318@example.com  
+- 📧 Email: dhanushiyaprakash318@gmail.com  
 
 ---
 
